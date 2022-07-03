@@ -1,8 +1,9 @@
 <p align="center">
-  manta<br>
-  <img src="https://cdn.discordapp.com/attachments/640704471042883654/992971380289196143/swimd.gif"><br>
-  they/he<br>
-  i like the sea and dinos and A Lot more ^_^<br>
-  im usually afk/with my bf!<br>
-  <img src="https://cdn.discordapp.com/attachments/640704471042883654/992973750385508382/anchor_line2.gif">
+ <img src="https://cdn.discordapp.com/attachments/640704471042883654/992973750385508382/anchor_line2.gif"><br>
+ manta<br>
+ <img src="https://cdn.discordapp.com/attachments/640704471042883654/992971380289196143/swimd.gif"><br>
+ they/he<br>
+ i like the sea and dinos and A Lot more ^_^<br>
+ im usually afk/with my bf!<br>
+ <img src="https://cdn.discordapp.com/attachments/640704471042883654/992973750385508382/anchor_line2.gif">
 </p>
