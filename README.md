@@ -4,5 +4,4 @@
   <i><a href=http://my.pronoun.is/they?or=he>they/he</a></i><br>
   ocean weyrdo<br>
  i have my whisps off T_T soery<br>
- im usually afk...
 </p>
