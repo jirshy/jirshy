@@ -6,5 +6,6 @@
 </p>
 
 <p align="center">
-  i have my whisps off soery <img src="https://cdn.discordapp.com/attachments/640704471042883654/996880525795016755/peck.gif">
+  i have my whisps off T_T  <img src="https://cdn.discordapp.com/attachments/640704471042883654/996880525795016755/peck.gif"><br>
+  im afk a Lot.. soery if i dont see ur msg!
 </p>
