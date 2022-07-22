@@ -1,9 +1,9 @@
 <p align="center">
   <b>sea</b> or seagull<br>
-  <img src="https://cdn.discordapp.com/attachments/640704471042883654/1000164579797631076/dumbo.gif"><br>
-  <i>they/he</i> ^_^ <img src="https://cdn.discordapp.com/attachments/640704471042883654/997629644813652008/white_sparke.gif"><br>
+  <img src="https://cdn.discordapp.com/attachments/640704471042883654/1000165807738847324/dollllllllll.gif"><br>
+  <i>they/he</i> <img src="https://cdn.discordapp.com/attachments/640704471042883654/1000165254015238145/heart.gif"><br>
   single celled organism<br>
-  im afk a Lot... soery if i dont see ur msg! <img src="https://cdn.discordapp.com/attachments/640704471042883654/1000164662039556197/amaz.gif">
+  im afk a Lot T_T soery if i dont see ur msg!
 </p>
 
 <p align="center">
